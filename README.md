@@ -1,0 +1,1 @@
+Hainanese chicken rice is a Southeast Asian dish of poached chicken and seasoned rice, served with chilli sauce and usually with cucumber garnishes. It was created by immigrants from Hainan in southern China and adapted from the Hainanese dish Wenchang chicken.
